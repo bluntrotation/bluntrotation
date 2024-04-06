@@ -1,1 +1,3 @@
-![](https://cdn.discordapp.com/attachments/754805640332836894/1225925769646047242/imageedit_1_8101119771.png?ex=6622e758&is=66107258&hm=1774e9f66e24f8dc898f846fc3e9ccdd788ad89b78ee6c01ad282c177d5d6442&)
+dont even joke lad
+
+![](https://cdn.discordapp.com/attachments/754805640332836894/1226261023653105684/GKapwnHXQAAoMRJ.png?ex=66241f92&is=6611aa92&hm=f5e397418b8a824fe46fd975539c0846f5072b814fedcaa7f677e581b95b1e4c&)
