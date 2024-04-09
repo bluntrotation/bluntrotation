@@ -1,3 +1,2 @@
 dont even joke lad
-CHECK out my SICK #UNBELIEVABLE ant INFESTATION!!! 
-![](https://cdn.discordapp.com/attachments/754805640332836894/1227291748829761547/IMG_20240409_175057.jpg?ex=6627df82&is=66156a82&hm=64a916b3682754a2bc594942a6e8002fc0b0c5df2e14fa86ec43da26a4d77463&) 
+
