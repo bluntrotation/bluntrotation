@@ -1,3 +1,3 @@
 dont even joke lad
 
-![](https://cdn.discordapp.com/attachments/754805640332836894/1211085549746651276/Untitled223_20240225000126.png?ex=6624494f&is=6611d44f&hm=10fb08498c3ad7830c98eeacae6f3c7a87cc98920c4aaa7f0a499cd076e49ff1&)
+![](https://www.simpleimageresizer.com/_uploads/photos/f5ef9406/image_2024-04-11_125648883_50.png)
