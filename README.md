@@ -1,3 +1,3 @@
 dont even joke lad
 
-![](https://cdn.discordapp.com/attachments/754805640332836894/1206346337084375100/image.png?ex=66258093&is=66130b93&hm=b4b99204ecc9e644f58cad6b27e968698689ed9ecde4b540547090a2f9cbf180&)
+[![](https://pbs.twimg.com/media/GDCAOOSWUAAdsQo?format=jpg&name=medium)](https://github.com/bathroombreak/bathroombreak/assets/108626152/ce2bb15c-1fe9-4841-bb30-5435344d50c3)
