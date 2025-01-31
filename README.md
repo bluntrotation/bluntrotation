@@ -1,4 +1,4 @@
-[strawpage](https://thangyou.straw.page)     ‎ ‎    ‎ ‎  ‎ ‎  [rentry](https://rentry.co/karmaboy)
+[rentry](https://rentry.co/karmaboy)     ‎ ‎    ‎ ‎  ‎ ‎  [strawpage](https://thangyou.straw.page)     ‎ ‎    ‎ ‎  ‎ ‎  
 
 when the Squid starts Gaminggggg 😭😭😭😭
 
