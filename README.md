@@ -2,6 +2,6 @@
 
 <div align="center">
   
- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [atabook](https://gojo.atabook.org/)  ‎ ‎ ‎ ‎  ‎ ‎
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [rentry](https://rentry.co/piro)  ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [atabook](https://gojo.atabook.org/)  ‎ ‎ ‎ ‎  ‎ ‎
  </div>
 
